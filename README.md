@@ -1,1 +1,1 @@
-Welcome to Hue-Bot!
+Welcome to Hue-Bot! 🎆
